@@ -32,14 +32,38 @@ Praktikum 1
 
 <img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/60b48ca5-cedf-4778-b6bb-a1df5a5ce938" />
 
+<img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/64eb92e0-aa89-4a09-bfb1-b741cc59e87f" />
 
+<img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/f3257c51-2a35-49e7-b8f7-1b20a826972f" />
 
+<img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/b6e4152d-b9c3-477d-9bac-bf35019aba31" />
 
+<img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/64361d6e-6e69-46f6-a479-f3d9ae15f44f" />
 
+<img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/80efa270-ef9e-47c6-a359-3f302a7cb4bf" />
 
+<img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/5f197d23-9417-4a63-842b-538b3f642194" />
 
+<img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/3e81dda6-1e7f-45f3-bfe3-285108c66104" />
 
+<img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/2845393d-4ec2-4867-8f82-2ccdd7d243d3" />
 
+<img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/a0c5fac0-d642-410a-aa37-6e737aae7b7d" />
 
+<img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/324d3c3d-4d40-4b8b-8cc5-d323f74f4131" />
 
+<img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/7f174d19-7808-44ac-b193-825e4ccd5c4d" />
 
+<img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/c0ddfd52-0e3c-42e9-a5d8-333988e53f8e" />
+
+<img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/55c17b73-a59e-4862-ba58-422fc6948828" />
+
+<img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/b1911a41-04d4-415d-af87-f3ea1532a63a" />
+
+<img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/b5f88146-338b-482e-9cf3-f89f5ef0455c" />
+
+<img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/506348d5-5923-40d3-b3b0-7654b0dc60e9" />
+
+<img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/f882e7ba-752f-4b98-87ca-8544f780b1de" />
+
+<img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/1d7c0737-611b-4a83-9cc0-99127e433ab3" />
