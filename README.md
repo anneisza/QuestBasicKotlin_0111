@@ -18,6 +18,9 @@ Praktikum 1
 
 <img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/014ddea9-1622-4a5e-a386-a53b7be055af" />
 
+<img width="1917" height="1078" alt="image" src="https://github.com/user-attachments/assets/a9c0e6e8-bfa4-4ca7-a7d7-de7cabbe954a" />
+
+
 
 
 
